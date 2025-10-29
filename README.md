@@ -1,0 +1,1 @@
+Data and code for my Substack post on Alphabet Agency, [New York City is Too Hot (in a bad way): Thoughts for Mayor Mamdani on a Heat-Resilient City, Part I](https://alphabetagency.substack.com/p/new-york-city-is-too-hot-in-a-bad).
